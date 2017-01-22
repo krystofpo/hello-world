@@ -1,5 +1,5 @@
 # hello-world
-prvni program
+rkrjrlyc
 
 
 Nec o me bala bala
